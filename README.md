@@ -40,9 +40,9 @@ Here are some of my highlighted works:
 
 
 ## 📫 Get in Touch
-- LinkedIn: [Your LinkedIn link here]
+- LinkedIn: [nouran-fadlallah](https://www.linkedin.com/in/nouran-fadlallah/)
 - Email: nouran.fadlallah@gmail.com
-- Location: Beylikdüzü, Istanbul
+- Location: Istanbul, Türkiye
 
 ---
 
